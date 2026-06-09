@@ -1,4 +1,4 @@
-# 
+# Seguro Sublime Text extensões para Mac OS | Avançado Sublime Text extensões para PC Windows. Com monitoramento de recursos e procedimentos armazenados — otimizado para máximo desempenho em cada plataforma.
 
 
 
